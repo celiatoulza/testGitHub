@@ -7,13 +7,3 @@ Have a pleasant tomorrow !
 
 Mais on est que Vendredi ...
 
-
-Some Nights clucking version is the best sonnerie ever !
-
-Qui a pris mon jambon et ma pizza je me le demande ... 
-
-
-Et mais je suis pas sure que ca va marcher
-
-
-Encore un petit ajoutm je sais pas si ca marche
